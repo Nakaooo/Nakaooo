@@ -1,9 +1,26 @@
-- 👋 Heyyy, sono @Nakaooo
-- 👀 Ho aperto questo priflo GitHub per collaborare insieme ad un mio amico nella creazione di un bot su discord
-- 🌱 Vado a scuola, fatti i cazzi tuoi :D
-- 💞️ Collaboro con iThunder (il più grande clown di tutti i tempi)
-- 📫 Puoi trovarmi su discord ( Nakaø✝#5874 ), su Telegram ( @ImNakao ) e in altri social
+PENE
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+e
 <!---
 Nakaooo/Nakaooo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
